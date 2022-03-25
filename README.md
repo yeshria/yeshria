@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on friendships with cool people :)
 - 📫 How to reach me? Ask for my number in class 
 
-Current Song Stuck in My Head: When I kissed the Teacher - ABBA
+Current Song Stuck in My Head: Woman - Dorothy
 
 <!---
 yeshria/yeshria is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
